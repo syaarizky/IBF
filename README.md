@@ -54,16 +54,16 @@ python run.py
 ```
 
 ##### ALL MENU:
-[![@syaarizky](https://github.com/AdityaTwinz/IBF/blob/main/assets/IMG_20231209_140413.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang*)
+[![@syaarizky](https://github.com/syaarizky/IMG/blob/main/IMG_20240315_153340.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang*)
 
 ##### HALAMAN LOGIN:
-[![@syaarizky](https://github.com/AdityaTwinz/IBF/blob/main/assets/IMG_20231209_140424.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang)
+[![@syaarizky](https://github.com/syaarizky/IMG/blob/main/IMG_20240315_153403.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang)
 
 ##### FITUR CHECKPOINT DETEKTOR:
 [![@syaarizky](https://github.com/AdityaTwinz/IBF/blob/main/assets/IMG_20231209_140444.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang)
 
 ##### RESULT CRACK:
-[![@syaarizky](https://github.com/AdityaTwinz/IBF/blob/main/assets/IMG_20231209_152639.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang)
+[![@syaarizky](https://github.com/syaarizky/IMG/blob/main/IMG_20240315_153443.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang)
 
 [![@adityaexec_](https://github.com/AdityaTwinz/IBF/blob/main/assets/IMG_20231209_152619.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang)
 **[notice me:](https://wa.me/++447389662026?text=*Assalamualaikum%20Bang*)** **banyaknya hasil ok atau cp tergantung target ya**
