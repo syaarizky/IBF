@@ -60,7 +60,7 @@ python run.py
 [![@syaarizky](https://github.com/syaarizky/IMG/blob/main/IMG_20240315_153443.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang)
 
 ##### FITUR CHECKPOINT DETEKTOR:
-[![@syaarizky](https://github.com/AdityaTwinz/IBF/blob/main/assets/IMG_20231209_140444.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang)
+[![@syaarizky](https://github.com/syaarizky/IMG/blob/main/IMG_20240315_153403.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang)
 
 ##### RESULT CRACK:
 [![@syaarizky](https://github.com/syaarizky/IMG/blob/main/IMG_20240315_153443.jpg)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang)
