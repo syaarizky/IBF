@@ -36,6 +36,7 @@ Script ini tidak memerlukan pembaruan karena diperbarui secara otomatis setiap s
  $ pip install stdiomask
  $ pip install rich
  $ pip install requests
+ $ pip install user_agent
  $ pip install bs4
  $ rm -rf IBF
  $ git clone https://github.com/syaarizky/IBF
